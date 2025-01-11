@@ -1,1 +1,0 @@
-# navidaminnn.github.io
